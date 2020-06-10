@@ -11,7 +11,7 @@
 
 ---
 
-## directions1
+## directions
 
 1. In a large pot, brown the meat. Set aside.
 1. Saute garlic, onions for 3 minutes.

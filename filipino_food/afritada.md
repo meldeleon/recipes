@@ -15,7 +15,7 @@
 
 ---
 
-## directions1
+## directions
 
 1. Heat the olive oil in a heavy pan or Dutch oven over medium-high heat
 1. Brown the chicken in batches, turning over the cubes once one side is brown. Do not overfill the pan, or else the chicken juices will overwhelm the pan, and they will steam instead of browning. Remove the chicken as it browns.
