@@ -29,4 +29,4 @@
 1. place mixture in ziptop bag, shape to a ball.
 1. seal and refrigerate for 30 minutes.
 1. roll out dough. makes one pie crust, double for encased crusts.
-1. parbake with pie stones, 20 min.
+1. parbake with pie stones or rice, 20 min.
