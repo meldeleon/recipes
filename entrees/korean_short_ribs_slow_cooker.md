@@ -13,7 +13,8 @@
 * Small handful of roughly chopped fresh cilantro
 * Kosher salt & freshly ground pepper
 
-### NB: This was adopted from https://nomnompaleo.com/post/3762844557/slow-cooker-korean-grass-fed-short-ribs, but is NOT a paleo recipe.
+### NB: 
+* This was adapted from https://nomnompaleo.com/post/3762844557/slow-cooker-korean-grass-fed-short-ribs, but is NOT a paleo recipe.
 
 ---
 
