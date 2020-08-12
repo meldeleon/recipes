@@ -16,6 +16,6 @@
 ## directions
 1. preheat oven to 350F
 1. cook butter, celery, onions, herbs until translucent
-1.  toss with bread and broth
+1. toss with bread and broth
 1. bake in baking dish, covered for 45 min
-1. bake another 15 min uncovered to brown
+1. bake another 15 min uncovered until top is browned and crisp
