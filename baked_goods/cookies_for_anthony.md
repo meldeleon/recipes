@@ -24,7 +24,7 @@
 ---
 
 ## directions
-1. pre-heat 350°F.
+1. pre-heat 375°F.
 1. sift together dry, set aside.
 1. cream together shortening, sugar, peanut butter
 1. add egg/vanilla, stir to combine.
@@ -32,4 +32,5 @@
 1. stir in additions.
 1. scoop onto parchment lined baking sheets, 1 tbsp per scoop, 2 in apart.
 1. press down with meat mallet or fork in cross-hatch.
-1. bake 10-12 minutes, until edges slightly golden.
+1. bake 15-17 minutes, until edges slightly golden.
+1. feed to anthony.
