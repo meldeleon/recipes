@@ -1,6 +1,6 @@
 # meatballs and marinara sauce
 
-## ingredients for meatballs
+## ingredients for meatballs:
 
 - 1 large onion, 1/4-inch dice
   Salt
@@ -26,7 +26,7 @@
 
 ---
 
-## directions for sauce
+## directions for sauce:
 
 1. Start with the Marinara sauce.
 1. Coat a large saucepot with olive oil and add the pancetta. Bring the pot to a medium-high heat and cook the pancetta for 4 to 5 minutes.
@@ -35,7 +35,7 @@
 1. Add the tomatoes to the pot and rinse out 1 of the empty tomato cans with water and add that water to the pot (about 2 to 3 cups).
 1. Season generously with salt and TASTE IT!!!! Tomatoes take a lot of salt. Season in baby steps and taste every step of the way. Cook the sauce for 2 to 3 hours, stirring occasionally and tasting frequently. Add meatballs 1 hour before serving, below:
 
-## directions for meatballs.
+## directions for meatballs:
 
 1. Coat a large saute pan with olive oil, add the onions and bring to a medium-high heat. Season the onions generously with salt and cook for about 5 to 7 minutes.
 1. Add the garlic and the crushed red pepper and saute for another 1 to 2 minutes. Turn off heat and allow to cool.
