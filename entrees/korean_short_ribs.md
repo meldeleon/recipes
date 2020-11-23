@@ -2,7 +2,7 @@
 
 ## ingedients
 
-- 4-6 pounds bone-in English-style grass-fed short ribs
+- 6 bone-in English-style short ribs
 - 1 medium pear peeled and chopped
 - 1/2 c low sodsoy sauce
 - 6 garlic cloves peeled/chooped
