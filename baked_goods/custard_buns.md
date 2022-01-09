@@ -4,19 +4,19 @@
 
 ### dry
 
-1 tablespoon active dry yeast
-1 teaspoon white sugar
-1/4 cup all-purpose flour
-1 1/2 cups all-purpose flour
-1/4 teaspoon salt
-2 tablespoons white sugar
-1/2 teaspoon baking powder
+- 1 tablespoon active dry yeast
+- 1 teaspoon white sugar
+- 1/4 cup all-purpose flour
+- 1 1/2 cups all-purpose flour
+- 1/4 teaspoon salt
+- 2 tablespoons white sugar
+- 1/2 teaspoon baking powder
 
 ### wet
 
-1/4 cup water
-1/2 cup warm water
-1 tablespoon vegetable oil
+- 1/4 cup water
+- 1/2 cup warm water
+- 1 tablespoon vegetable oil
 
 ### filling
 
