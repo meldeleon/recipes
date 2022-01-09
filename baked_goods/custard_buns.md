@@ -29,12 +29,6 @@
 - 1/4 cup dry milk powder (30g)
 - 2 tablespoons melted butter (30g)
 
-### crumble (optional)
-
-- 1/4 c butter, melted
-- 1/3 c flour
-- 1/3 c brown sugar
-
 ---
 
 ## directions
