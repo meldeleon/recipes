@@ -31,7 +31,6 @@
 1. add egg, stir to combine.
 1. add peebub budger, stir to just combine.
 1. add dry ingredients in three batches. stir between additions
-1. stir in additions.
 1. scoop 1½ tbsp into hands and form into balls, roll in bowl of granulated sugar untill it is completely covered.
 1. place on baking sheets, 2 inches apart, depress either with patterned side of a meat tenderizer, or with a fork twice to make a criss cross pattern.
 1. bake 10-12 minutes, until edges slightly golden.
